@@ -6,3 +6,5 @@
 照片链接：https://pan.baidu.com/s/1pMyxty00-sxFYD_g__BYPQ 提取码: q6mi
 
 视频链接: https://pan.baidu.com/s/12fxP6O847Raq5mDeDcZzgg 提取码: fiqp
+
+网页展示：https://shenjimei.github.io/AI_Challenger_NEU/
